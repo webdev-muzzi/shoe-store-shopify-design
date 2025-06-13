@@ -34,4 +34,5 @@ This was a client project. A live link or demo can be provided upon request.
 ## Contact
 
 Need a Shopify store for your own brand?  
-Reach out via Fiverr or Upwork to get started.
+Reach out via [Fiverr](https://www.fiverr.com/muzamil_h1) or [Upwork](https://www.upwork.com/freelancers/~013e0d1c9806ff1742) to get started.
+
